@@ -1,4 +1,4 @@
-# Hi there, I'm Ifti Ahmed 👋
+# Hi there, I'm AMINUL ISLAM 👋
 
 ### 🚀 Full-Stack Developer | AI & Robotics Enthusiast | Network Engineer
 
